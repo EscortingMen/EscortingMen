@@ -14,7 +14,7 @@
 </div> <div align="center">ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ᴀʟ ᴏʀ ᴡᴇꜱ. </div> 
 </div> <div align="center"><a href="https://en.pronouns.page/@EscortingMen"> He/Him</a> </div> 
 </div> <div align="center"> ɪ'ᴍ 20. ɪ ʜᴀᴠᴇ ᴀᴜᴅʜᴅ ᴀᴍᴏɴɢ ᴏᴛʜᴇʀ ᴛʜɪɴɢꜱ ᴛʜᴀᴛ ɪ'ᴍ ɴᴏᴛ ᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ꜱʜᴀʀɪɴɢ ᴏɴʟɪɴᴇ ʙᴜᴛ, ɪ ᴀᴍ ᴀ ᴘᴀʀᴛ ᴏꜰ ᴀ ꜱʏꜱᴛᴇᴍ. </div> 
-</div> <div align="center"> ɪ ꜱɪᴛ ᴀᴛ ꜱᴘᴀᴡɴ/ʙᴀᴋᴇʀʏ/ᴍᴀʀᴠᴇʟ/ᴅᴄ ꜱᴘᴏᴛ ᴡɪᴛʜ ᴍʏ ꜰʀɪᴇɴᴅꜱ!
+</div> <div align="center"> ɪ ꜱɪᴛ ᴀᴛ ꜱᴘᴀᴡɴ/ʙᴀᴋᴇʀʏ/ᴍᴀʀᴠᴇʟ/ᴅᴄ ꜱᴘᴏᴛ ᴡɪᴛʜ ᴍʏ <a href="https://rentry.co/VenomFriends">ꜰʀɪᴇɴᴅꜱ!</a>
 </div> <div align="center"> ʏᴏᴜ ᴄᴀɴ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ ᴀᴛ ᴀɴʏ ᴛɪᴍᴇ ᴜɴʟᴇꜱꜱ ɪ'ᴍ ꜱᴀᴛ ᴡɪᴛʜ ꜱᴏᴍᴇᴏɴᴇ ᴡʜᴏ ʜᴀꜱ ᴅɴɪ/ᴅɴɪᴜꜰ/ᴅɴɪᴜᴄ ɪɴ ᴛʜᴇɪʀ ɴᴀᴍᴇ.
 </div> <div align="center">   ⠀⠀
 </div> <div align="center"> ╔══ஓ๑♡๑ஓ══╗
