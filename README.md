@@ -20,16 +20,18 @@
 </div> <div align="center"> ╔══ஓ๑♡๑ஓ══╗
 </div> <div align="center"> ᴅɴɪ
 </div> <div align="center"> ★ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴀᴄᴛɪᴠᴇʟʏ ᴀʀᴇ ᴀ ᴘᴀʀᴛ ᴏꜰ ᴛᴏxɪᴄɪᴛʏ ɪɴ ꜰᴀɴᴅᴏᴍꜱ, ᴇᴛᴄ. ʟᴇᴛ ᴘᴇᴏᴘʟᴇ ʜᴀᴠᴇ ꜰᴜɴ!
-</div> <div align="center"> ✞ꜰᴀɴꜱ ᴏꜰ ᴛᴏxɪᴄ ᴍᴇᴅɪᴀꜱ. ᴛʜɪꜱ ɪɴᴄʟᴜᴅᴇꜱ ʜʜ/ʜʙ, ᴅꜱᴍᴘ, ᴄᴏᴅ, ʀᴀɴꜰʀᴇɴ, ᴛʀᴜᴇ ᴄʀɪᴍᴇ, ᴀɴᴅ ᴍᴏʀᴇ.
+</div> <div align="center"> ✞ꜰᴀɴꜱ ᴏꜰ ᴛᴏxɪᴄ ᴍᴇᴅɪᴀꜱ. ᴛʜɪꜱ ɪɴᴄʟᴜᴅᴇꜱ ʜʜ/ʜʙ, ᴅꜱᴍᴘ, ᴄᴏᴅ, ʀᴀɴꜰʀᴇɴ, ᴛʀᴜᴇ ᴄʀɪᴍᴇ, ᴀɴᴅ ᴍᴏʀᴇ. *
 </div> <div align="center"> ★ʀᴏʟᴇᴘʟᴀʏᴇʀꜱ, ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴍᴀᴋᴇ ꜰᴜɴ ᴏꜰ ᴋɪɴɴɪɴɢ/ᴄᴏᴘɪɴɢ ᴍᴇᴄʜᴀɴɪꜱᴍꜱ.
 </div> <div align="center"> ✞ᴇɴᴅᴏɢᴇɴɪᴄ ꜱʏꜱᴛᴇᴍꜱ, ᴢᴏᴏꜱ, ʀᴀᴄɪꜱᴛꜱ, ʜᴏᴍᴏᴘʜᴏʙᴇꜱ, ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴀᴋᴀ, ᴀᴠᴇʀᴀɢᴇ ᴅɴɪ
 </div> <div align="center"> ★ᴍᴏᴜᴛʜᴡᴀꜱʜɪɴɢ ɪꜱ ᴏɴ ᴛʜɪɴ ɪᴄᴇ ʙᴛᴡ :3
+</div> <div align="center">    !!!!!!!  *ᴛʜᴏꜱᴇ ᴡʜᴏ ᴅᴏɴ'ᴛ ᴀᴄᴛɪᴠᴇʟʏ ᴘᴀʀᴛɪᴄɪᴘᴀᴛᴇ ɪɴ ᴛʜᴇ ꜰᴀɴᴅᴏᴍꜱ ᴛᴏxɪᴄɪᴛʏ ᴀʀᴇ ᴏᴋᴀʏ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴜɴʟᴇꜱꜱ ɪᴛ'ꜱ ᴀɴ ᴇxᴛʀᴇᴍᴇʟʏ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ᴍᴇᴅɪᴀ ꜱᴜᴄʜ ᴀꜱ ʙᴏʏꜰʀɪᴇɴᴅ ᴛᴏ ᴅᴇᴀᴛʜ (ʙᴛᴅ). !!!!!!!
 </div> <div align="center"> ╚══ஓ๑♡๑ஓ══╝
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">ꜱɪɢɴ ᴏᴜʀ <a href="https://escortingmen.atabook.org">ᴀᴛᴀʙᴏᴏᴋ!</a> ᴏʀ ᴅʀᴀᴡ ᴏɴ ᴍʏ <a href="https://escortingmen.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ!</a>
 </div> <div align="center"><a href="https://rentry.org/venomsparx">ʀᴇɴᴛʀʏ</a> — <a href="https://pluralkit.xyz/s/gyrxgj">ᴘʟᴜʀᴀʟ ᴋɪᴛ/ꜱʏꜱᴛᴇᴍ</a>
   </div> <div align="center">   ⠀⠀
-    
+     </div> <div align="center">   
+      
 ![D6phQTDU8AA4ln9](https://github.com/user-attachments/assets/563324ab-b45f-4740-aaa9-27448b7bf535)
 
 
