@@ -26,7 +26,7 @@
 </div> <div align="center"> ★ᴍᴏᴜᴛʜᴡᴀꜱʜɪɴɢ ɪꜱ ᴏɴ ᴛʜɪɴ ɪᴄᴇ ʙᴛᴡ :3
 </div> <div align="center"> ╚══ஓ๑♡๑ஓ══╝
 </div> <div align="center">   ⠀⠀
-</div> <div align="center">ꜱɪɢɴ ᴏᴜʀ <a href="https://escortingmen.atabook.org">ᴀᴛᴀʙᴏᴏᴋ!</a>
+</div> <div align="center">ꜱɪɢɴ ᴏᴜʀ <a href="https://escortingmen.atabook.org">ᴀᴛᴀʙᴏᴏᴋ!</a> ᴏʀ ᴅʀᴀᴡ ᴏɴ ᴍʏ <a href="https://escortingmen.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ!</a>
 </div> <div align="center"><a href="https://rentry.org/venomsparx">ʀᴇɴᴛʀʏ</a> — <a href="https://pluralkit.xyz/s/gyrxgj">ᴘʟᴜʀᴀʟ ᴋɪᴛ/ꜱʏꜱᴛᴇᴍ</a>
   </div> <div align="center">   ⠀⠀
     
