@@ -10,6 +10,8 @@
 </div> <div align="center">ᴠᴏʟᴜᴍᴇ: ————•]
  </div> <div align="center"> ◣━━━━━━━━━━━◢
 </div> <div align="center">   ⠀⠀
+ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=EscortingMen)
+
 </div> <div align="center">ɪ'ᴍ ᴀʟʙᴇʀᴛ!  </div>  
 </div> <div align="center">ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ᴀʟ ᴏʀ ᴡᴇꜱ. </div> 
 </div> <div align="center"><a href="https://en.pronouns.page/@EscortingMen"> He/Him</a> </div> 
