@@ -29,8 +29,8 @@
 </div> <div align="center">    !!!!!!!  *ᴛʜᴏꜱᴇ ᴡʜᴏ ᴅᴏɴ'ᴛ ᴀᴄᴛɪᴠᴇʟʏ ᴘᴀʀᴛɪᴄɪᴘᴀᴛᴇ ɪɴ ᴛʜᴇ ꜰᴀɴᴅᴏᴍꜱ ᴛᴏxɪᴄɪᴛʏ ᴀʀᴇ ᴏᴋᴀʏ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴜɴʟᴇꜱꜱ ɪᴛ'ꜱ ᴀɴ ᴇxᴛʀᴇᴍᴇʟʏ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ᴍᴇᴅɪᴀ ꜱᴜᴄʜ ᴀꜱ Horrorporn etc. !!!!!!!
 </div> <div align="center"> ╚══ஓ๑♡๑ஓ══╝
 </div> <div align="center">   ⠀⠀
+ </div> <div align="center"> ʟᴏᴏᴋ ᴀᴛ ᴍʏ <a href="https://rentry.org/venomsparx">ʀᴇɴᴛʀʏ</a> ʟᴏᴏᴋ ᴀᴛ ᴍʏ ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏ
 </div> <div align="center">ꜱɪɢɴ ᴍʏ <a href="https://escortingmen.atabook.org">ᴀᴛᴀʙᴏᴏᴋ!</a> ᴏʀ ᴅʀᴀᴡ ᴏɴ ᴍʏ <a href="https://escortingmen.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ!</a>
-</div> <div align="center"><a href="https://rentry.org/venomsparx">ʀᴇɴᴛʀʏ</a>
   </div> <div align="center">   ⠀⠀
      </div> <div align="center">   
       
