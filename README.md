@@ -30,7 +30,7 @@
 </div> <div align="center"> ╚══ஓ๑♡๑ஓ══╝
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">ꜱɪɢɴ ᴍʏ <a href="https://escortingmen.atabook.org">ᴀᴛᴀʙᴏᴏᴋ!</a> ᴏʀ ᴅʀᴀᴡ ᴏɴ ᴍʏ <a href="https://escortingmen.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ!</a>
-</div> <div align="center"><a href="https://rentry.org/venomsparx">ʀᴇɴᴛʀʏ</a> — 
+</div> <div align="center"><a href="https://rentry.org/venomsparx">ʀᴇɴᴛʀʏ</a>
   </div> <div align="center">   ⠀⠀
      </div> <div align="center">   
       
