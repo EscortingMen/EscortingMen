@@ -1,3 +1,5 @@
+![Views Counter](https://komarev.com/ghpvc/?username=escortingmen)
+
 </div> <div align="center">[ ılı.lıllılıı.ıllı
 
 </div> <div align="center">↳ currently playing ;;
@@ -33,7 +35,7 @@
 </div> <div align="center">ꜱɪɢɴ ᴍʏ <a href="https://escortingmen.atabook.org">ᴀᴛᴀʙᴏᴏᴋ!</a> ᴏʀ ᴅʀᴀᴡ ᴏɴ ᴍʏ <a href="https://venomsparx.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ!</a>
   </div> <div align="center">   ⠀⠀
      </div> <div align="center">   
-      
+     
 ![D6phQTDU8AA4ln9](https://github.com/user-attachments/assets/563324ab-b45f-4740-aaa9-27448b7bf535)
 
 
