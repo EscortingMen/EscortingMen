@@ -1,5 +1,7 @@
 ![Views Counter](https://komarev.com/ghpvc/?username=escortingmen)
 
+ <a href="https://docs.google.com/document/d/1h9kM4OJ5dsM39i-KCWWpGICLqb7JrRVoOWWQ5OwIqmE/edit?usp=sharing">PONYTOWN SONIC AREA READ THIS!!</a>
+
 </div> <div align="center">[ ılı.lıllılıı.ıllı
 
 </div> <div align="center">↳ currently playing ;;
