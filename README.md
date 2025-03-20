@@ -32,8 +32,7 @@
  </div> <div align="center"> ʟᴏᴏᴋ ᴀᴛ ᴍʏ <a href="https://rentry.org/venomsparx">ʀᴇɴᴛʀʏ</a> ʟᴏᴏᴋ ᴀᴛ ᴍʏ ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏ.
 </div> <div align="center">ꜱɪɢɴ ᴍʏ <a href="https://escortingmen.atabook.org">ᴀᴛᴀʙᴏᴏᴋ!</a> ᴏʀ ᴅʀᴀᴡ ᴏɴ ᴍʏ <a href="https://venomsparx.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ!</a>
   </div> <div align="center">   ⠀⠀
-     </div> <div align="center">   
-     ![Views Counter](https://komarev.com/ghpvc/?username=EscortingMen)
+     </div> <div align="center">   ![Views Counter](https://komarev.com/ghpvc/?username=EscortingMen)
       
 ![D6phQTDU8AA4ln9](https://github.com/user-attachments/assets/563324ab-b45f-4740-aaa9-27448b7bf535)
 
