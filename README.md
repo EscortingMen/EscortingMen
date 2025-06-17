@@ -13,6 +13,7 @@
 
 </div> <div align="center">ᴠᴏʟᴜᴍᴇ: ————•]
  </div> <div align="center"> ◣━━━━━━━━━━━◢
+</div> <div align="center">
 </div> <div align="center">   Adam/Loki/Starlord and Otto/Norman/Wesker/Afton truther!! :D
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">ɪ'ᴍ ᴀʟʙᴇʀᴛ!  </div>  
@@ -37,6 +38,7 @@
  </div> <div align="center"> ʟᴏᴏᴋ ᴀᴛ ᴍʏ <a href="https://rentry.org/venomsparx">ʀᴇɴᴛʀʏ</a> ʟᴏᴏᴋ ᴀᴛ ᴍʏ ꜰᴏʀ ᴍᴏʀᴇ ɪɴꜰᴏ.
 </div> <div align="center">ꜱɪɢɴ ᴍʏ <a href="https://escortingmen.atabook.org">ᴀᴛᴀʙᴏᴏᴋ!</a> ᴏʀ ᴅʀᴀᴡ ᴏɴ ᴍʏ <a href="https://venomsparx.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ!</a>
   </div> <div align="center">   ⠀⠀
+</div> <div align="center">
 
 ![7d948101151979f7e47e971bd59e04bc](https://github.com/user-attachments/assets/c4d9169f-9739-4a07-a229-3a7d86595538)
 
