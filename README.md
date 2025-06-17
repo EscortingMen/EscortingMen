@@ -42,10 +42,6 @@
 ![7d948101151979f7e47e971bd59e04bc](https://github.com/user-attachments/assets/c4d9169f-9739-4a07-a229-3a7d86595538)
 
 ![D6phQTDU8AA4ln9](https://github.com/user-attachments/assets/563324ab-b45f-4740-aaa9-27448b7bf535)
-![1](https://64.media.tumblr.com/9b190e3e4fcebe06fae21e97bb32eb31/ca9b3eaa315dfc66-0e/s640x960/405002e6e828e3904d0fcb01d4588fa22d0e6337.gifv)
-
-
-![](Uploading tumblr_9b190e3e4fcebe06fae21e97bb32eb31_405002e6_640 (1).gif…)
 
 
 
