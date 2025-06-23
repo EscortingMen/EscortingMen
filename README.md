@@ -15,7 +15,7 @@
  </div> <div align="center"> ◣━━━━━━━━━━━◢
 </div> <div align="center">
 </div> <div align="center">
-</div> <div align="center">   MoonKnight/Starlord/Adam/Loki and Otto/Norman/Wesker/Afton truther!! :D
+</div> <div align="center">   MoonKnight/Starlord/Adam/Loki and Otto/Norman/Wesker/Afton/Dr Connors truther!! :D
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">ɪ'ᴍ ᴀʟʙᴇʀᴛ!  </div>  
 </div> <div align="center">ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ᴀʟ ᴏʀ ᴡᴇꜱ. </div> 
