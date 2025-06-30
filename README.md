@@ -38,7 +38,7 @@
 ![7d948101151979f7e47e971bd59e04bc](https://github.com/user-attachments/assets/c4d9169f-9739-4a07-a229-3a7d86595538)
 
 
-![Springtrap_Lore_1920x1080_FINAL_e6f56ed161](https://github.com/user-attachments/assets/b9c64df2-7934-42f7-adb5-781a599c7b21)
+
 
 
 ![D6phQTDU8AA4ln9](https://github.com/user-attachments/assets/563324ab-b45f-4740-aaa9-27448b7bf535)
