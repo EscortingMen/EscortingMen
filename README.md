@@ -14,8 +14,10 @@
 </div> <div align="center">ᴠᴏʟᴜᴍᴇ: ————•]
  </div> <div align="center"> ◣━━━━━━━━━━━◢
 </div> <div align="center">
-</div> <div align="center"> 
+</div> <div align="center">
+ 
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
+
 </div> <div align="center">   MoonKnight/Starlord/Adam/Loki and Otto/Norman/Wesker/Afton/Dr Connors truther!! :D
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">ɪ'ᴍ ᴀʟʙᴇʀᴛ!  </div>  
