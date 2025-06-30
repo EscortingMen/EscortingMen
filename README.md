@@ -2,18 +2,11 @@
 
  <a href="https://docs.google.com/document/d/1OeYdNVrhPUUuWY5ePx63WMTl1CMvlFAUmNR-lpOvrgI/edit?usp=sharing">PONYTOWN SONIC AREA READ THIS!!</a>
 
-</div> <div align="center">[ ılı.lıllılıı.ıllı
+</div> <div align="center"> ❝𝖣𝖾𝗌𝗉𝗂𝗍𝖾 𝖠𝗅𝗅 𝖬𝗒 𝖱𝖺𝗀𝖾, 𝖨 𝖠𝗆 𝖲𝗍𝗂𝗅𝗅 𝖩𝗎𝗌𝗍 𝖠 𝖱𝖺𝗍 𝖨𝗇 𝖠 𝖢𝖺𝗀𝖾❞
+</div> <div align="center"> 
 
-</div> <div align="center">↳ currently playing ;;
+https://open.spotify.com/track/2itcYu5GSP50cfgY2Un2Ak
 
-</div> <div align="center">[Killer Queen] - [Mad Tsai]
-</div> <div align="center">0:48 ———•——————— 2:58
-
-</div> <div align="center">↺ << ll >> ⋮≡
-
-</div> <div align="center">ᴠᴏʟᴜᴍᴇ: ————•]
- </div> <div align="center"> ◣━━━━━━━━━━━◢
-</div> <div align="center">
 </div> <div align="center">
  
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
