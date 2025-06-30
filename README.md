@@ -35,7 +35,7 @@
   </div> <div align="center">   ⠀⠀
 </div> <div align="center">
 
-![7d948101151979f7e47e971bd59e04bc](https://github.com/user-attachments/assets/c4d9169f-9739-4a07-a229-3a7d86595538) ![Screenshot 2024-11-02 212129](https://github.com/user-attachments/assets/74f12675-bcdd-446b-9620-c537287572ae)
+![7d948101151979f7e47e971bd59e04bc](https://github.com/user-attachments/assets/c4d9169f-9739-4a07-a229-3a7d86595538) 
 
 
 
