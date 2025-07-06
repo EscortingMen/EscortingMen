@@ -9,7 +9,7 @@
  
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
 
-</div> <div align="center">   MoonKnight/Starlord/Adam/Loki #1 Propaganda Spreader 
+</div> <div align="center">   MoonKnight/Starlord/Adam/Loki and IronStrange #1 Propaganda Spreader 
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">ɪ'ᴍ ᴀʟʙᴇʀᴛ!  </div>  
 </div> <div align="center">ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ᴀʟ ᴏʀ ᴡᴇꜱ. </div> 
