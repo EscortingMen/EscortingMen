@@ -10,7 +10,7 @@
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
 
 </div> <div align="center">   MoonKnight/Starlord/Adam/Loki and IronStrange #1 Propaganda Spreader 
-</div> <div align="center">   ⠀⠀
+</div> <div align="center">   ⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&redirect=true) 
 </div> <div align="center">ɪ'ᴍ ᴀʟʙᴇʀᴛ!  </div>  
 </div> <div align="center">ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ᴀʟ ᴏʀ ᴡᴇꜱ. </div> 
 </div> <div align="center"><a href="https://en.pronouns.page/@EscortingMen"> He/Him</a> </div> 
