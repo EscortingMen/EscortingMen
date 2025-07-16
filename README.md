@@ -8,6 +8,7 @@
 </div> <div align="center">
  
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
+https://spotify-github-profile.kittinanx.com
 
 </div> <div align="center">   MoonKnight/Starlord/Adam/Loki and IronStrange #1 Propaganda Spreader 
 </div> <div align="center">   ⠀⠀
