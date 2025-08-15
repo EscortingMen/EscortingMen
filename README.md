@@ -35,6 +35,9 @@
   </div> <div align="center">   ⠀⠀
 </div> <div align="center"> Otto/Norman/Wesker/Afton/Dr Connors truther!! :D
 
+</div> <div align="center">  Current Interests
+</div> <div align="center">  Marvel, Dead By Daylight, Resident Evil, Five Night's At Freddy's, The Quarry, Doctor Who, Red Dwarf and American Horror Story. 
+
 ![7d948101151979f7e47e971bd59e04bc](https://github.com/user-attachments/assets/c4d9169f-9739-4a07-a229-3a7d86595538) 
 
 
