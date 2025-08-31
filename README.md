@@ -1,6 +1,5 @@
 ![Views Counter](https://komarev.com/ghpvc/?username=escortingmen)
 
- <a href="https://docs.google.com/document/d/1OeYdNVrhPUUuWY5ePx63WMTl1CMvlFAUmNR-lpOvrgI/edit?usp=sharing">PONYTOWN SONIC AREA READ THIS!!</a>
 
 </div> <div align="center"> <a href="https://open.spotify.com/track/2itcYu5GSP50cfgY2Un2Ak">❝𝖣𝖾𝗌𝗉𝗂𝗍𝖾 𝖠𝗅𝗅 𝖬𝗒 𝖱𝖺𝗀𝖾, 𝖨 𝖠𝗆 𝖲𝗍𝗂𝗅𝗅 𝖩𝗎𝗌𝗍 𝖠 𝖱𝖺𝗍 𝖨𝗇 𝖠 𝖢𝖺𝗀𝖾❞</a>
 </div> <div align="center"> 
