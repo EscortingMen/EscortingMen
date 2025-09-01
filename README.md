@@ -12,7 +12,7 @@
 
 
 <p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a> > <a href="https://rentry.co/VenomFriends">My Friends</a>
-
+</div>
 
 
 𝘾𝙪𝙧𝙧𝙚𝙣𝙩 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨:
