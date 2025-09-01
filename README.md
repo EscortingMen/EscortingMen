@@ -13,8 +13,7 @@
 
 <p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a> > <a href="https://rentry.co/VenomFriends">My Friends</a>
 
-<p align="Center"> ↳𝗗𝗼 𝗻𝗼𝘁 𝗮𝘀𝘀𝗼𝗰𝗶𝗮𝘁𝗲 𝗺𝗲 𝘄𝗶𝘁𝗵 𝗺𝘆 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 𝗮𝗰𝘁𝗶𝗼𝗻𝘀, 𝘁𝗵𝗲𝘆 𝗮𝗿𝗲 𝘁𝗵𝗲𝗶𝗿 𝗼𝘄𝗻 𝗽𝗲𝗿𝘀𝗼𝗻, 𝗷𝘂𝘀𝘁 𝗯𝗲𝗰𝗮𝘂𝘀𝗲 𝘁𝗵𝗲𝘆 𝗱𝗼 𝘀𝗼𝗺𝗲𝘁𝗵𝗶𝗻𝗴 𝗱𝗼𝗲𝘀 𝗻𝗼𝘁 𝗺𝗲𝗮𝗻 𝗜 𝗮𝗹𝘄𝗮𝘆𝘀 𝗮𝗴𝗿𝗲𝗲 𝘄𝗶𝘁𝗵 𝘁𝗵𝗲𝗶𝗿 𝗮𝗰𝘁𝗶𝗼𝗻𝘀. 
-</div>
+<p align="Center"> 
 
 𝘾𝙪𝙧𝙧𝙚𝙣𝙩 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨:
 Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Red Dwarf & American Horror Story.
