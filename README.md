@@ -2,13 +2,14 @@
 
 <p align="Center"> 𝑨𝒍𝒃𝒆𝒓𝒕
 <p align="Center"> 
+</div> <div align="center"> <a href="https://open.spotify.com/track/2itcYu5GSP50cfgY2Un2Ak">❝𝖣𝖾𝗌𝗉𝗂𝗍𝖾 𝖠𝗅𝗅 𝖬𝗒 𝖱𝖺𝗀𝖾, 𝖨 𝖠𝗆 𝖲𝗍𝗂𝗅𝗅 𝖩𝗎𝗌𝗍 𝖠 𝖱𝖺𝗍 𝖨𝗇 𝖠 𝖢𝖺𝗀𝖾❞</a>
 
  
 <div align="center">
   <img src="https://64.media.tumblr.com/a003f9952ea3cd0e2f2e3be6ef705a53/5dce411690025c9f-6b/s500x750/847a9092e87e1a3d7f91b18fa18abebec3c02539.pnj">
 </div>
  
-</div> <div align="center"> <a href="https://open.spotify.com/track/2itcYu5GSP50cfgY2Un2Ak">❝𝖣𝖾𝗌𝗉𝗂𝗍𝖾 𝖠𝗅𝗅 𝖬𝗒 𝖱𝖺𝗀𝖾, 𝖨 𝖠𝗆 𝖲𝗍𝗂𝗅𝗅 𝖩𝗎𝗌𝗍 𝖠 𝖱𝖺𝗍 𝖨𝗇 𝖠 𝖢𝖺𝗀𝖾❞</a>
+
 
 <p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a> > <a href="https://rentry.co/VenomFriends">My Friends</a>
 
