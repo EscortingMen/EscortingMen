@@ -22,7 +22,7 @@ Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Do
 Warloki, 𝗟𝘂𝗻𝗮𝗿 𝗝𝘂𝘀𝘁𝗶𝗰𝗲 (Frank Castle and Moonknight), Thor x Starlord, Otto Octavius and Norman Osborn, 𝗜𝗿𝗼𝗻𝗦𝘁𝗿𝗮𝗻𝗴𝗲, 𝗠𝗼𝗼𝗻𝗞𝗻𝗶𝗴𝗵𝘁/𝗦𝘁𝗮𝗿𝗹𝗼𝗿𝗱/𝗔𝗱𝗮𝗺/𝗟𝗼𝗸𝗶, Otto Octavius/Norman Osborn/Albert Wesker/William Afton/Dr Curtis Connors + More!! Pretty open to ships as long as it isn't freak shit!
 
 𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨:
-Moonknight, Adam Warlock, Ant-Man, Hank Pym, SpringTrap, The Mangle, William Afton. 
+Moonknight, Adam Warlock, Pietro Maximoff, Wanda Maximoff, Matt Murdock, Foggy Nelson, Ant-Man, Hank Pym, Johnny Storm, Pyro, Spiderman, Dr Strange, Tony Stark, James Rhodes, SpringTrap, The Mangle, William Afton. 
 
 </div> <div align="center">
 
