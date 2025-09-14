@@ -19,7 +19,7 @@
 Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Red Dwarf & American Horror Story.
 
 𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝙎𝙝𝙞𝙥𝙨:
-Warloki, 𝗟𝘂𝗻𝗮𝗿 𝗝𝘂𝘀𝘁𝗶𝗰𝗲 (Frank Castle and Moonknight), Thor x Starlord, Otto Octavius x Norman Osborn, 𝗜𝗿𝗼𝗻𝗦𝘁𝗿𝗮𝗻𝗴𝗲, 𝗠𝗼𝗼𝗻𝗞𝗻𝗶𝗴𝗵𝘁/𝗦𝘁𝗮𝗿𝗹𝗼𝗿𝗱/𝗔𝗱𝗮𝗺/𝗟𝗼𝗸𝗶, Otto Octavius/Norman Osborn/Albert Wesker/William Afton/Dr Curtis Connors + More!! Pretty open to ships as long as it isn't freak shit!
+Warloki, 𝗟𝘂𝗻𝗮𝗿 𝗝𝘂𝘀𝘁𝗶𝗰𝗲 (Frank Castle and Moonknight), Fratt, 𝙌𝙪𝙞𝙡𝙡𝙤𝙘𝙠, Magneto x Strange, Thor x Bruce, Cherik, Thorquill, Devilmoon, Otto Octavius x Norman Osborn, 𝗜𝗿𝗼𝗻𝗦𝘁𝗿𝗮𝗻𝗴𝗲, 𝗠𝗼𝗼𝗻𝗞𝗻𝗶𝗴𝗵𝘁/𝗦𝘁𝗮𝗿𝗹𝗼𝗿𝗱/𝗔𝗱𝗮𝗺/𝗟𝗼𝗸𝗶, Otto Octavius/Norman Osborn/Albert Wesker/William Afton/Dr Curtis Connors + More!! Pretty open to ships as long as it isn't freak shit!
 
 𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨:
 𝗠𝗼𝗼𝗻𝗸𝗻𝗶𝗴𝗵𝘁, 𝗔𝗱𝗮𝗺 𝗪𝗮𝗿𝗹𝗼𝗰𝗸, 𝗩𝗶𝘀𝗶𝗼𝗻, 𝗣𝗶𝗲𝘁𝗿𝗼 𝗠𝗮𝘅𝗶𝗺𝗼𝗳𝗳, Wanda Maximoff, Matt Murdock, Foggy Nelson, Ant-Man, Hank Pym, Johnny Storm, Pyro, Spiderman, Dr Strange, Tony Stark, James Rhodes, SpringTrap, The Mangle, William Afton. 
