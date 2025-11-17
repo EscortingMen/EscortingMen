@@ -4,7 +4,7 @@
 <p align="Center"> 
 </div> <div align="center"> <a href="https://open.spotify.com/track/2itcYu5GSP50cfgY2Un2Ak">❝𝖣𝖾𝗌𝗉𝗂𝗍𝖾 𝖠𝗅𝗅 𝖬𝗒 𝖱𝖺𝗀𝖾, 𝖨 𝖠𝗆 𝖲𝗍𝗂𝗅𝗅 𝖩𝗎𝗌𝗍 𝖠 𝖱𝖺𝗍 𝖨𝗇 𝖠 𝖢𝖺𝗀𝖾❞</a>
 
- 
+</div> <div align="center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color_cover=false&bar_color=95465e)](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&redirect=true)
 <div align="center">
   <img src="https://64.media.tumblr.com/a003f9952ea3cd0e2f2e3be6ef705a53/5dce411690025c9f-6b/s500x750/847a9092e87e1a3d7f91b18fa18abebec3c02539.pnj">
 </div>
