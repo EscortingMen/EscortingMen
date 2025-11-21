@@ -11,7 +11,7 @@
  
 
 
-<p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a> > <a href="https://rentry.co/VenomFriends">My Friends</a>
+<p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparxx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a> > <a href="https://rentry.co/VenomFriends">My Friends</a>
 </div>
 
 
