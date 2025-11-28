@@ -24,7 +24,7 @@ Warloki, 𝗟𝘂𝗻𝗮𝗿 𝗝𝘂𝘀𝘁𝗶𝗰𝗲 (Frank Castle and Moo
 Plus My a silly crackship: Otto Octavius/Norman Osborn/Albert Wesker/William Afton/Dr Curtis Connors
 
 𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨:
-𝗠𝗼𝗼𝗻𝗸𝗻𝗶𝗴𝗵𝘁, 𝗔𝗱𝗮𝗺 𝗪𝗮𝗿𝗹𝗼𝗰𝗸, 𝗩𝗶𝘀𝗶𝗼𝗻, 𝗣𝗶𝗲𝘁𝗿𝗼 𝗠𝗮𝘅𝗶𝗺𝗼𝗳𝗳, Wanda Maximoff, Matt Murdock, Foggy Nelson, Ant-Man, Hank Pym, Johnny Storm, Pyro, Spiderman, Dr Strange, Tony Stark, James Rhodes, SpringTrap, The Mangle, William Afton. 
+𝗠𝗼𝗼𝗻𝗸𝗻𝗶𝗴𝗵𝘁, 𝗩𝗶𝗰𝘁𝗼𝗿 𝗙𝗿𝗮𝗻𝗸𝗲𝗻𝘀𝘁𝗲𝗶𝗻, 𝗔𝗱𝗮𝗺 𝗪𝗮𝗿𝗹𝗼𝗰𝗸, 𝗩𝗶𝘀𝗶𝗼𝗻, 𝗣𝗶𝗲𝘁𝗿𝗼 𝗠𝗮𝘅𝗶𝗺𝗼𝗳𝗳, Wanda Maximoff, Matt Murdock, Foggy Nelson, Ant-Man, Hank Pym, Johnny Storm, Pyro, Spiderman, Dr Strange, Tony Stark, James Rhodes, SpringTrap, The Mangle, William Afton. 
 
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a>
 
