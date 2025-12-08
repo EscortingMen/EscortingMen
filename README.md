@@ -22,7 +22,7 @@
 Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Red Dwarf, Frankenstein, American Horror Story & Ancient History (Mainly Ancient Greece and Anicent Egypt atm!).
 
 𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝙎𝙝𝙞𝙥𝙨:
-Warloki, 𝗟𝘂𝗻𝗮𝗿 𝗝𝘂𝘀𝘁𝗶𝗰𝗲 (Frank Castle and Moonknight), Sam Wilson x Scott Lang, MoonKnight X Jack Russell, 𝗬𝗼𝘄𝘇𝗮𝗵 (𝗥𝗶𝘃𝗲𝗿 𝗦𝗼𝗻𝗴 𝘅 𝗧𝗵𝗲 𝗗𝗼𝗰𝘁𝗼𝗿), Fratt, Mattfoggy, 𝙌𝙪𝙞𝙡𝙡𝙤𝙘𝙠, Magik x Kitty, Beast x Havok, Agathario, Wanda x Vision, Iceman x Pyro, Angel x Cyclops, Magneto x Strange, Thor x Bruce, Cherik, Thorquill, Devilmoon, Otto Octavius x Norman Osborn, 𝗜𝗿𝗼𝗻𝗦𝘁𝗿𝗮𝗻𝗴𝗲, 𝗠𝗼𝗼𝗻𝗞𝗻𝗶𝗴𝗵𝘁/𝗦𝘁𝗮𝗿𝗹𝗼𝗿𝗱/𝗔𝗱𝗮𝗺/𝗟𝗼𝗸𝗶 + More!! Pretty open to ships as long as it isn't freak shit!
+Warloki, 𝗟𝘂𝗻𝗮𝗿 𝗝𝘂𝘀𝘁𝗶𝗰𝗲 (Frank Castle and Moonknight), Sam Wilson x Scott Lang, MoonKnight X Jack Russell, MoonKnight X Blade, 𝗬𝗼𝘄𝘇𝗮𝗵 (𝗥𝗶𝘃𝗲𝗿 𝗦𝗼𝗻𝗴 𝘅 𝗧𝗵𝗲 𝗗𝗼𝗰𝘁𝗼𝗿), Fratt, Mattfoggy, 𝙌𝙪𝙞𝙡𝙡𝙤𝙘𝙠, Magik x Kitty, Beast x Havok, Agathario, Wanda x Vision, Iceman x Pyro, Angel x Cyclops, Magneto x Strange, Thor x Bruce, Cherik, Thorquill, Devilmoon, Otto Octavius x Norman Osborn, 𝗜𝗿𝗼𝗻𝗦𝘁𝗿𝗮𝗻𝗴𝗲, 𝗠𝗼𝗼𝗻𝗞𝗻𝗶𝗴𝗵𝘁/𝗦𝘁𝗮𝗿𝗹𝗼𝗿𝗱/𝗔𝗱𝗮𝗺/𝗟𝗼𝗸𝗶 + More!! Pretty open to ships as long as it isn't freak shit!
 
 Plus My a silly crackship: Otto Octavius/Norman Osborn/Albert Wesker/William Afton/Dr Curtis Connors
 
@@ -40,7 +40,6 @@ Plus My a silly crackship: Otto Octavius/Norman Osborn/Albert Wesker/William Aft
 
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
 
-![Uploading fcf7c479b9e00ddaee7354779d1aa8cc.gif…]()
-
+![fcf7c479b9e00ddaee7354779d1aa8cc](https://github.com/user-attachments/assets/aff80da0-1e92-4e2f-ab7d-cc3a456faffc)
 
 
