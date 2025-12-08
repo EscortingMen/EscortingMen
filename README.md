@@ -7,7 +7,7 @@
  <p align="Center"> —— “Can You Contain Your Fire Prometheus?
  <p align="Center">            Or Are You Going To Burn Your Hands Before You Deliever It?„ ——
   </div> <div align="center"> <a href="https://open.spotify.com/track/2itcYu5GSP50cfgY2Un2Ak">❝𝖣𝖾𝗌𝗉𝗂𝗍𝖾 𝖠𝗅𝗅 𝖬𝗒 𝖱𝖺𝗀𝖾, 𝖨 𝖠𝗆 𝖲𝗍𝗂𝗅𝗅 𝖩𝗎𝗌𝗍 𝖠 𝖱𝖺𝗍 𝖨𝗇 𝖠 𝖢𝖺𝗀𝖾❞</a> 
-   <div align="center"> 
+  
     
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=95465e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&redirect=true)
 
