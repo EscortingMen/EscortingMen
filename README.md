@@ -22,15 +22,10 @@
 
 
 𝘾𝙪𝙧𝙧𝙚𝙣𝙩 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨:
-Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Red Dwarf, Frankenstein, American Horror Story & Ancient History (Mainly Ancient Greece and Anicent Egypt atm!).
-
-𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝙎𝙝𝙞𝙥𝙨:
-Warloki, 𝗟𝘂𝗻𝗮𝗿 𝗝𝘂𝘀𝘁𝗶𝗰𝗲 (Frank Castle and Moonknight), Sam Wilson x Scott Lang, MoonKnight X Jack Russell, MoonKnight X Blade, 𝗬𝗼𝘄𝘇𝗮𝗵 (𝗥𝗶𝘃𝗲𝗿 𝗦𝗼𝗻𝗴 𝘅 𝗧𝗵𝗲 𝗗𝗼𝗰𝘁𝗼𝗿), Fratt, Mattfoggy, 𝙌𝙪𝙞𝙡𝙡𝙤𝙘𝙠, Magik x Kitty, Beast x Havok, Agathario, Wanda x Vision, Iceman x Pyro, Angel x Cyclops, Magneto x Strange, Thor x Bruce, Cherik, Thorquill, Devilmoon, Otto Octavius x Norman Osborn, 𝗜𝗿𝗼𝗻𝗦𝘁𝗿𝗮𝗻𝗴𝗲, 𝗠𝗼𝗼𝗻𝗞𝗻𝗶𝗴𝗵𝘁/𝗦𝘁𝗮𝗿𝗹𝗼𝗿𝗱/𝗔𝗱𝗮𝗺/𝗟𝗼𝗸𝗶 + More!! Pretty open to ships as long as it isn't freak shit!
-
-Plus My a silly crackship: Otto Octavius/Norman Osborn/Albert Wesker/William Afton/Dr Curtis Connors
+Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Stranger Things, Red Dwarf, Frankenstein, American Horror Story & Ancient History (Mainly Ancient Greece and Anicent Egypt atm!).
 
 𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨:
-𝗠𝗼𝗼𝗻𝗸𝗻𝗶𝗴𝗵𝘁, 𝗩𝗶𝗰𝘁𝗼𝗿 𝗙𝗿𝗮𝗻𝗸𝗲𝗻𝘀𝘁𝗲𝗶𝗻, 𝗔𝗱𝗮𝗺 𝗪𝗮𝗿𝗹𝗼𝗰𝗸, 𝗩𝗶𝘀𝗶𝗼𝗻, 𝗣𝗶𝗲𝘁𝗿𝗼 𝗠𝗮𝘅𝗶𝗺𝗼𝗳𝗳, Wanda Maximoff, Matt Murdock, Foggy Nelson, Ant-Man, Hank Pym, Johnny Storm, Pyro, Spiderman, Dr Strange, Tony Stark, James Rhodes, SpringTrap, The Mangle, William Afton. 
+𝗠𝗼𝗼𝗻𝗸𝗻𝗶𝗴𝗵𝘁, 𝗩𝗶𝗰𝘁𝗼𝗿 𝗙𝗿𝗮𝗻𝗸𝗲𝗻𝘀𝘁𝗲𝗶𝗻, 𝗔𝗱𝗮𝗺 𝗪𝗮𝗿𝗹𝗼𝗰𝗸, 𝗩𝗶𝘀𝗶𝗼𝗻, 𝗣𝗶𝗲𝘁𝗿𝗼 𝗠𝗮𝘅𝗶𝗺𝗼𝗳𝗳, Wanda Maximoff, Matt Murdock, Foggy Nelson, Ant-Man, Hank Pym, Johnny Storm, Pyro, Spiderman, Dr Strange, Tony Stark, James Rhodes, Mike Wheeler, SpringTrap, The Mangle, William Afton. 
 
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a>
 
