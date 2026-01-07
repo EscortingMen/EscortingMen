@@ -25,7 +25,7 @@
 Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Stranger Things, Red Dwarf, Frankenstein, American Horror Story & Ancient History (Mainly Ancient Greece and Anicent Egypt atm!).
 
 𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨:
-𝗠𝗼𝗼𝗻𝗸𝗻𝗶𝗴𝗵𝘁, 𝗩𝗶𝗰𝘁𝗼𝗿 𝗙𝗿𝗮𝗻𝗸𝗲𝗻𝘀𝘁𝗲𝗶𝗻, 𝗔𝗱𝗮𝗺 𝗪𝗮𝗿𝗹𝗼𝗰𝗸, 𝗩𝗶𝘀𝗶𝗼𝗻, 𝗣𝗶𝗲𝘁𝗿𝗼 𝗠𝗮𝘅𝗶𝗺𝗼𝗳𝗳, Wanda Maximoff, Matt Murdock, Foggy Nelson, Ant-Man, Hank Pym, Johnny Storm, Pyro, Spiderman, Dr Strange, Tony Stark, James Rhodes, Mike Wheeler, SpringTrap, The Mangle, William Afton. 
+𝗠𝗼𝗼𝗻𝗸𝗻𝗶𝗴𝗵𝘁, 𝗩𝗶𝗰𝘁𝗼𝗿 𝗙𝗿𝗮𝗻𝗸𝗲𝗻𝘀𝘁𝗲𝗶𝗻, 𝗔𝗱𝗮𝗺 𝗪𝗮𝗿𝗹𝗼𝗰𝗸, 𝗩𝗶𝘀𝗶𝗼𝗻, 𝗣𝗶𝗲𝘁𝗿𝗼 𝗠𝗮𝘅𝗶𝗺𝗼𝗳𝗳, Wanda Maximoff, Matt Murdock, Foggy Nelson, Ant-Man, Hank Pym, Johnny Storm, Pyro, Spiderman, Dr Strange, Tony Stark, James Rhodes, 𝗠𝗶𝗸𝗲 𝗪𝗵𝗲𝗲𝗹𝗲𝗿, 𝗦𝗽𝗿𝗶𝗻𝗴𝗧𝗿𝗮𝗽, The Mangle, William Afton. 
 
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a>
 
