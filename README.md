@@ -38,6 +38,8 @@ Plus My Silly Crackship: Otto Octavius/Norman Osborn/Albert Wesker/William Afton
 
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
 
+</div> <div align="left">
+
 𝗗𝗡𝗜: Proshippers/Dark Shippers (Whatever tf you wanna call yourselves), People Who Joke About SA, Minors, People Who Can't Communicate Properly or  Talk Highly of Communication But Never Do It, Shit-Stirrers, SHED Twitter people.
 
 </div> <div align="center">
