@@ -47,8 +47,6 @@ Plus My Silly Crackship: Otto Octavius/Norman Osborn/Albert Wesker/William Afton
 </div> <div align="center">
 
 
-![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
-
 ![fcf7c479b9e00ddaee7354779d1aa8cc](https://github.com/user-attachments/assets/aff80da0-1e92-4e2f-ab7d-cc3a456faffc)
 
 
