@@ -29,6 +29,8 @@ Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Do
 
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a>
 
+𝗗𝗡𝗜: Proshippers/Dark Shippers (Whatever tf you wanna call yourselves), People Who Joke About SA, Minors, People Who Can't Communicate Properly or  Talk Highly of Communication But Never Do It, Shit-Stirrers, SHED Twitter people.
+
 </div> <div align="center">
 
 </div> <div align="center"> <a href="https://open.spotify.com/track/5ZSkaSivPY609sNv5MSaux?si=e33e5f07d80044d3">❝Ich hasse dich, ich liebe dich❞</a>
