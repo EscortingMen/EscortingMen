@@ -22,7 +22,7 @@
 
 
 𝘾𝙪𝙧𝙧𝙚𝙣𝙩 𝙄𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨:
-Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Stranger Things, Red Dwarf, Frankenstein, American Horror Story & Ancient History (Mainly Ancient Greece and Anicent Egypt atm!).
+Marvel, Dead By Daylight, Resident Evil, Five Nights At Freddy's, The Quarry, Doctor Who, Stranger Things, Red Dwarf, Frankenstein & American Horror Story.
 
 𝙁𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝘾𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨:
 𝗠𝗼𝗼𝗻𝗸𝗻𝗶𝗴𝗵𝘁, 𝗩𝗶𝗰𝘁𝗼𝗿 𝗙𝗿𝗮𝗻𝗸𝗲𝗻𝘀𝘁𝗲𝗶𝗻, 𝗔𝗱𝗮𝗺 𝗪𝗮𝗿𝗹𝗼𝗰𝗸, 𝗩𝗶𝘀𝗶𝗼𝗻, 𝗣𝗶𝗲𝘁𝗿𝗼 𝗠𝗮𝘅𝗶𝗺𝗼𝗳𝗳, Wanda Maximoff, Matt Murdock, Foggy Nelson, Ant-Man, Hank Pym, Johnny Storm, Pyro, Spiderman, Dr Strange, Tony Stark, James Rhodes, 𝗠𝗶𝗸𝗲 𝗪𝗵𝗲𝗲𝗹𝗲𝗿, 𝗦𝗽𝗿𝗶𝗻𝗴𝗧𝗿𝗮𝗽, The Mangle, William Afton. 
@@ -33,6 +33,13 @@ Warloki, 𝗟𝘂𝗻𝗮𝗿 𝗝𝘂𝘀𝘁𝗶𝗰𝗲 (Frank Castle and Moo
 Plus My Silly Crackship: Otto Octavius/Norman Osborn/Albert Wesker/William Afton/Dr Curtis Connors
 
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a>
+
+
+
+𝗦𝗼𝗺𝗲 𝗡𝗼𝗻-𝗙𝗮𝗻𝗱𝗼𝗺 𝗧𝗵𝗶𝗻𝗴𝘀 𝗜 𝗘𝗻𝗷𝗼𝘆 𝗜𝗻𝗰𝗹𝘂𝗱𝗲:
+Radiation Physics, Radioecology, Ancient History (Mostly Greece, Egypt, and Rome), Computer Viruses and other Cyber Security related things & more e.g. Global crises, pandemics, and how viruses were spread + cured. 
+
+
 
 </div> <div align="center">
 
