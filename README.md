@@ -20,7 +20,7 @@
 <p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparxx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a>
 </div>
 
-Hii! I'm Albert, if you see me around PonyTown and try to talk to me I'm most likely afk unfortunately! I'm trying to be more active though :D
+Hii! I'm Albert, if you see me around PonyTown and try to talk to me I'm most likely afk unfortunately! I'm trying to be more active though and if I'm not afk I'm willing to talk to anyone, feel free to come up to me or send a whisper, I promise I won't bite :D
 
  </div> <div align="center"> <a href="https://rentry.org/VenomsInterestss"> Information About My Interests :D </a>
 
