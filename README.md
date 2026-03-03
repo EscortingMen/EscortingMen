@@ -22,6 +22,8 @@
 
 Hii! I'm Albert, if you see me around PonyTown and try to talk to me I'm most likely afk unfortunately! I'm trying to be more active though and if I'm not afk I'm willing to talk to anyone, feel free to come up to me or send a whisper, I promise I won't bite :D
 
+![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
+
  </div> <div align="center"> <a href="https://rentry.org/VenomsInterestss"> Information About My Interests :D </a>
 
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a>
@@ -30,7 +32,7 @@ Hii! I'm Albert, if you see me around PonyTown and try to talk to me I'm most li
 
 </div> <div align="center">
 
-![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
+
 
 </div> <div align="left">
 
