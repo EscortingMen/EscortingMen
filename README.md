@@ -22,6 +22,8 @@
 
 Hii! I'm Albert, if you see me around PonyTown and try to talk to me I'm most likely afk unfortunately! I'm trying to be more active though and if I'm not afk I'm willing to talk to anyone, feel free to come up to me or send a whisper, I promise I won't bite :D
 
+</div> <div align="center">
+
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
 
  </div> <div align="center"> <a href="https://rentry.org/VenomsInterestss"> Information About My Interests :D </a>
