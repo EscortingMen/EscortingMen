@@ -27,11 +27,6 @@
 
 
 
-𝗦𝗼𝗺𝗲 𝗡𝗼𝗻-𝗙𝗮𝗻𝗱𝗼𝗺 𝗧𝗵𝗶𝗻𝗴𝘀 𝗜 𝗘𝗻𝗷𝗼𝘆 𝗜𝗻𝗰𝗹𝘂𝗱𝗲:
-Radiation Physics, Radioecology, Ancient History (Mostly Greece, Egypt, and Rome), Computer Viruses and other Cyber Security related things & more e.g. Global crises, pandemics, and how viruses were spread + cured. 
-
-
-
 </div> <div align="center">
 
 ![ezgif-45ae08e09cd02d](https://github.com/user-attachments/assets/7b5e1742-6e72-44aa-a604-0f931efa0375) 
