@@ -18,7 +18,7 @@
  
 
 
-<p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparxx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a>
+<p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a>
 </div>
 
 Hii! I'm Albert! I love interacting with people and I'm always down for making new friends. I'm really awkward at approaching people first though...Gulp... If you see me around PonyTown and try to talk to me and I don't respond, it's probably because I'm AFK!  I'm trying to be more active though, feel free to come up to me or send a whisper, I promise I won't bite :D
