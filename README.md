@@ -8,7 +8,7 @@
  <p align="Center">            Or Are You Going To Burn Your Hands Before You Deliever It?„ ——
   </div> <div align="center"> <a href="https://open.spotify.com/track/3YRCqOhFifThpSRFJ1VWFM?si=defae6c024254ac2">❝It's Hard To Hold A Candle In The Cold November Rain❞</a> 
   
-➸PSA Since some people can not tell... I do not like comic Zemo!! I like the MCU version of him who isn't a nazi btw!! I feel like this would be obvious if you spent less than a second to look at my stuff I quite literally have the basic DNI IN my DNI which INCLUDES Nazis btw gang :3
+
      
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=95465e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&redirect=true)
 
@@ -31,7 +31,7 @@ Hii! I'm Albert! I love interacting with people and I'm always down for making n
  </div> <div align="center"> <a href="https://rentry.org/VenomsInterestss"> Information About My Interests :D </a>
 
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a>
-
+➸PSA Since some people can not tell... I do not like comic Zemo!! I like the MCU version of him who isn't a nazi btw!! I feel like this would be obvious if you spent less than a second to look at my stuff I quite literally have the basic DNI IN my DNI which INCLUDES Nazis btw gang :3
 
 
 </div> <div align="center">
