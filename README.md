@@ -8,7 +8,8 @@
  <p align="Center">            Or Are You Going To Burn Your Hands Before You Deliever It?„ ——
   </div> <div align="center"> <a href="https://open.spotify.com/track/3YRCqOhFifThpSRFJ1VWFM?si=defae6c024254ac2">❝It's Hard To Hold A Candle In The Cold November Rain❞</a> 
   
-    
+➸PSA Since some people can not tell... I do not like comic Zemo!! I like the MCU version of him who isn't a nazi btw!! I feel like this would be obvious if you spent less than a second to look at my stuff I quite literally have the basic DNI IN my DNI which INCLUDES Nazis btw gang :3
+     
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=95465e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&redirect=true)
 
 <div align="center">
@@ -39,7 +40,7 @@ Hii! I'm Albert! I love interacting with people and I'm always down for making n
 
 </div> <div align="left">
 
-𝗗𝗡𝗜: Proshippers/Dark Shippers (Whatever tf you wanna call yourselves), People Who Joke About SA, Minors, People Who Can't Communicate Properly or  Talk Highly of Communication But Never Do It, Shit-Stirrers, SHED Twitter people.
+𝗗𝗡𝗜: Basic DNI, Proshippers/Dark Shippers (Whatever tf you wanna call yourselves), People Who Joke About SA, Minors, People Who Can't Communicate Properly or  Talk Highly of Communication But Never Do It, Shit-Stirrers, SHED Twitter people.
 
 </div> <div align="center">
 
