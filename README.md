@@ -39,6 +39,8 @@ Hii! I'm Albert! I love interacting with people and I'm always down for making n
 
 
 </div> <div align="left">
+</div> <div align="center">
+
 
 </div> 𝗗𝗡𝗜: Basic DNI, Proshippers/Dark Shippers (Whatever tf you wanna call yourselves), People Who Joke About SA, Minors, People Who Can't Communicate Properly or  Talk Highly of Communication But Never Do It, Shit-Stirrers, SHED Twitter people.
 
