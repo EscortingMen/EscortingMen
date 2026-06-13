@@ -31,7 +31,7 @@ Hii! I'm Albert! I love interacting with people and I'm always down for making n
  </div> <div align="center"> <a href="https://rentry.org/VenomsInterestss"> Information About My Interests :D </a>
 
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a> 
-</div> ➸PSA Since some people can not tell... I do not like comic Zemo!! I like the MCU version of him who isn't a nazi btw!! I feel like this would be obvious if you spent less than a second to look at my stuff I quite literally have the "basic DNI" IN my DNI which INCLUDES Nazis btw gang :3
+</div> 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 </div> <div align="center">⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀                   <img width="939" height="413" alt="Screenshot 2026-06-11 094815" src="https://github.com/user-attachments/assets/d5ddeeb6-6016-41f6-ba70-e0de38972681" />
 
