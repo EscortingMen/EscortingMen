@@ -1,3 +1,5 @@
+THIS ACCOUNT PROBABLY ISN'T GOING TO BE USED ANYMORE!! I've moved accounts to <a href="https://github.com/B0vidae"> @B0vidae </a>
+
 ![Views Counter](https://komarev.com/ghpvc/?username=escortingmen)
 
  
